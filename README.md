@@ -1,2 +1,3 @@
-# Arkins-First-Repository
-My First Repository on Github
+# Arkins-Repository
+Aguas, Arkin Nicholas M.
+9 - Balingkilat
